@@ -1,3 +1,3 @@
 # ilk-projem
- Yaptığım ilk kodlama yani ilk projem :)
+denediğim ilk şey lmao
  saati gösteriyor o kadar asdasdasd :D
